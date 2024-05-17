@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ZedS
+- 👀 I’m interested in PfSense
+- 🌱 I’m currently learning and working
+- 💞️ I’m looking to collaborate on everyone, I will be glad any help
